@@ -17,10 +17,4 @@ I can align, lead and grow portfolios from 1 - 100 products.
 - I am constantly driving myself to learn and grow as a person professionally and personally. 
 - I focus on making high-quality, well-planned decisions, but I know how to act quickly
 
-Professional Skills 
-Software Development - Product Management - Product Owner - User Experience (UX) Design - User Interface (UI) Design - Product Analytics - Team Development - Market Analysis - Strategic Planning - Technology Planning - Product Roadmap - Product Development - Product Marketing - SaaS - Agile Development - Data Analysis & Research - Business Development
-
-Domain Knowledge
-Major Platforms Ad Buying - eCommerce Operations - eCommerce Marketing - Affiliate Models - Shopify - eCom & Marketing Sciences - Big Data - ETL Platforms
-
 If you would like access to my special access, not public, portfolio vault; feel free to send a message to: cody@withdesign.ca
